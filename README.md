@@ -12,7 +12,7 @@ $\small\textcolor{#FFF8DC}{\textsf{we're always afk, make sure to int by whisp!}
 <p align="center">
 $\small\textcolor{#FCA6BF}{\textsf{hyper-sharing pest/tenna/poob yume (⁠◕⁠ᴗ⁠◕⁠✿⁠)}}$
 <p align="center">
-$\small\textcolor{#8C52B6}{\textsf{we're 14yrs old lolz}}$
+$\small\textcolor{#8C52B6}{\textsf{we're 15yrs old lolz}}$
 <p align="center">
 $\small\textcolor{#FF76E6}{\textsf{we're often non-verval or awkward with new people, sometimes dry}}$
 $\small\textcolor{#FFD3BE}{\textsf{but we will always try to be as kind as we can}}$
